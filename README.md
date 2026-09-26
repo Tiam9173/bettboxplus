@@ -31,8 +31,8 @@
 
 ### ✈️ 社区交流
 
-👉 **官方 Telegram 群组 (Group)**: [https://t.me/bettboxplus_grup](https://t.me/bettboxplus_grup)  
-👉 **官方 Telegram 频道 (Channel)**: [https://t.me/bettboxplus](https://t.me/bettboxplus)
+👉 **官方 Telegram 群组 (Group)**: [https://t.me/Fluxora_Grup](https://t.me/Fluxora_Grup)  
+👉 **官方 Telegram 频道 (Channel)**: [https://t.me/Fluxora_Chanel](https://t.me/Fluxora_Chanel)
 
 ---
 
